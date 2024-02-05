@@ -1,5 +1,5 @@
 # Pixel Wheels AI🤖
 
-🚧 Work in Progress 50% completed!🚧 
+🚧 Work in Progress 75% completed!🚧 
 
 Stay tuned for updates!
